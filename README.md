@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Deyaneira
 - 👀 I’m interested in learning coding.
-- 🌱 I’m currently learning Coding
+- 🌱 I’m currently learning Aviation 
 - 💞️ I’m looking to collaborate on climate change
 - 📫 How to reach me dlopezb2009@gmail.com 
 
